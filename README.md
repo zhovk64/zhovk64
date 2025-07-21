@@ -1,4 +1,4 @@
-## 👋 Hello, I’m Zhovk64
+## 👋 Heyo!
 
 &nbsp;  
 
